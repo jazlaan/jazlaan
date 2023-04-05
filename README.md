@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @jazlaan
-- 📫 reach me at hi@jazlaan.com
+- 📫 reach me at message@jazlaan.com
